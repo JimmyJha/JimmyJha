@@ -1,5 +1,5 @@
 -  Hi, I’m @JimmyJha.
--  I’m interested in AI Developr.
+-  I’m interested in AI.
 -  I’m currently in 12th std
 
 
